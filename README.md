@@ -1,1 +1,1 @@
-https://DaraSilver.github.io/rsschool-cv/cv
+https://DaraSilver.github.io/rsschool-cv/
